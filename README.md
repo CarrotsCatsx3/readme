@@ -1,4 +1,3 @@
-komarev.com/sources/github-CarrotsCatsx3
 https://rentry.co/pinkiepearl
 
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹
