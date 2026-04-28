@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=CarrotsCatsx3)
+![](https://komarev.com/ghpvc/?username=CarrotsCatsx3&color=F9B3D7)
 https://rentry.co/pinkiepearl
 
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹
