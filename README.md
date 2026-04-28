@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=CarrotsCatsx3)
 https://rentry.co/pinkiepearl
 
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹
